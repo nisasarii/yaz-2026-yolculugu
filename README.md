@@ -1,0 +1,1 @@
+# yaz-2026-yolculugu
